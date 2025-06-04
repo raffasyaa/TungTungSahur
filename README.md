@@ -1,1 +1,1 @@
-# anomali mnegerikan
+# anomali mengerikan
